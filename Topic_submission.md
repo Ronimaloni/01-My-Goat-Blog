@@ -1,1 +1,2 @@
 I am going to create a blog about goats. This will mostly include maintaining goats and caring for them will they are sick, managing parasites, diseases, keeping up with vaccinations, and what to do while they are kidding. This will be a informative blog including alot of my own stories from my eleven year experience raising goats. 
+
