@@ -1,0 +1,7 @@
+Expertise #1
+
+I know alot of technical terms with poultry and goats. I know different breeds, anatomy, equipment used to raise these animals, even markets on goats. I can tell you how to show each animal, and all the best tips and tricks to make them look better than they really are. I know the diets of each one and basic medical care. I have raised chickens for 13 years and goats for 11 years, so i have learned alot about dealing with different diseases and problems just from experience. I know so much that I am now a 4-H project leader for both first level Meat Goats and first level Poultry. I teach new 4-H members how to raise, train, show, and care for their animals properly. 
+
+Expertise #2
+
+I also know alot about chemistry. After working in the chemistry department for three years, I have picked up on nomenclature, reactions, chemical names, different synthesis, the equipment needed to run an experiment, (their names and how to use them) and even some math to analyze the results of the experiment. I am the General Chemitry Lab Manager so I orchestrate all the labs for Gen Chem, grade papers for 118 chemistry students, and tutor students one-on-one. I can tell where most things are located in the lab. (if someone else hasnt moved it!) I usually know how a lab is going to run, about how long it will take for a class to finish it, and the problems that will arise while they complete their lab. 
