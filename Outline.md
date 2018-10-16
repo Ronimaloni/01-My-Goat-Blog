@@ -4,7 +4,7 @@
 
 About post, introductory post. what you are writing about and why it matters. Define your audience here.
 
-I will be writing about caring for Boer Goats. I will geared toward more of a hobby, or small farm production, instead of large scale production. I will cover topics like diseases, problems that Boer goats typically have, and kidding. My audience is small hobby farmers or farmers in small goat productions. both are for farmers just starting out and learning about goats. 
+I will be writing about caring for Boer Goats. I will be geared toward more of a hobby, or small farm production, instead of large scale production. I will cover topics like diseases, problems that Boer goats typically have, and kidding. My audience is small hobby farmers or farmers in small goat productions. both are for farmers just starting out and learning about goats. 
 
 ## Second Post
 
