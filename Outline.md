@@ -20,7 +20,7 @@ Kidding. Gestation period, what to look for while they are pregnant, when to exp
 
 ## optional other blog post
 
-Medicine cabinet and what to keep on hand. 
+Medicine cabinet and what to keep on hand. Basically a list of equipment and what each piece of equipment is used for. 
 
 
 
