@@ -8,7 +8,7 @@ I will be writing about caring for Boer Goats. I will be geared toward more of a
 
 ## Second Post
 
-Parasites in goats and how to deal with them. Treatment and prevention. This is a very commomn problem in goats.
+Parasites in goats and how to deal with them. Treatment and prevention. This is a very common problem in goats.
 
 ## Third Post
 
