@@ -8,3 +8,4 @@ Before I begin discussion of diseases and typical problems within a herd, I woul
 
 Photo credit: [Bosque Valley Boer Goats](http://bvboergoats.com/images/2009/9-21/Back-2-Nature-Polar-Express.jpg)
 
+
