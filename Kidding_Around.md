@@ -1,3 +1,5 @@
+![goats](https://github.com/Ronimaloni/Assignment_1.md/blob/master/IMG_9380.jpg)
+
 # Kidding Around
 
 If your herd is just a bit too small, and you don't want to keep buying new goats, you may look into becoming a goat breeder. Alot of things go into choosing the right Boer buck to sire your herd, and that can alot of fun. You get to look at so many different goats and choose what traits you want in your herd. After the selection process, you bring home that prize buck for all your does. But once your does is bred, what do you do? Let nature take it's course? While it is good to let nature sort things out, a good manager will have some knowledge about kidding to help the doe bring her kid into the world. To avoid confusion in this post, a female goat is called a doe, her giving birth is called kidding, and her babies are called kids. 
